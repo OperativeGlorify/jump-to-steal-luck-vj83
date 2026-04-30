@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with updated Scripts for bridger western, the #1 Script. Includes unlimited stamina and auto-heal for
 
 
 
